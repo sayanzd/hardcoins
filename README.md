@@ -1,2 +1,2 @@
 # hardcoins
-first game
+its simple you CANT BEAT IT
